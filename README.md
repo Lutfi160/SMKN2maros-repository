@@ -1,0 +1,1 @@
+# SMKN2maros-repository
